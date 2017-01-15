@@ -7,7 +7,7 @@
 
 資管3B 0324026 洪宇謙
 # 工作分配
-![Alt text](http://i.imgur.com/ie4eR1m.jpg)
+![Alt text](http://i.imgur.com/dUQo3Z5.jpg)
 
 # 主旨          
     
